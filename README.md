@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @WILLplayForFOODD
-- 👀 I’m interested in engineering, sniping with ak's in blood tide.
+- 👀 I’m interested in engineering,playing with ak-47's in blood tide.
 - 🌱 I’m currently learning Coding
 - 📫 How to reach me you dont.
 - 😄 Pronouns: A man, unlike you.
